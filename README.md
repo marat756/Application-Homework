@@ -1,2 +1,2 @@
 # Application-Homework
-The best project of all time$$$$
+The best project of all time$
